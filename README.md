@@ -11,6 +11,5 @@ Prior to this path, I made a living through legal consultancy in the area of fis
 
 ### More about me:
 - 🗺 I was born in 🇲🇹 (EU) but I consider myself a citizen of the world. In the last 10 years I lived in Italy, Belgium, Brazil and Switzerland.
-- 📚 I'm an avid fiction reader: https://www.goodreads.com/user/show/9676019-krista-calleja
-- ☕️ Fun fact: I volunteer as a book club organiser in my community
-- 📱 My dream project: building a fully-functional app in my native tongue 🇲🇹
+- 📚 Side hobbies: I volunteer as a book club organiser in my community. My latest reads: https://www.goodreads.com/user/show/9676019-krista-calleja
+- 🎼 I find respite in classical music.
